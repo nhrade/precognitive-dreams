@@ -10,3 +10,8 @@
 - [Byzantine Son's Death](https://x.com/Near_Death_FE/status/1670151780028542976)
 - [Bashir dream](https://x.com/Near_Death_FE/status/1808964359957164492)
 - [Escalator fall](https://qr.ae/p2H9qE)
+- [Necklace zombies](https://www.reddit.com/r/Dreams/comments/1aoppox/comment/kq1b84i/?utm_source=share&utm_medium=web3x&utm_name=web3xcss&utm_term=1&utm_content=share_button)
+- [Yellow teeth](https://www.reddit.com/r/Dreams/comments/1aoppox/comment/kq259ft/?utm_source=share&utm_medium=web3x&utm_name=web3xcss&utm_term=1&utm_content=share_button)
+- [Metroid space pirates](https://www.reddit.com/r/Dreams/comments/1aoppox/comment/kq1nex7/?utm_source=share&utm_medium=web3x&utm_name=web3xcss&utm_term=1&utm_content=share_button)
+- [Champion league](https://www.reddit.com/r/Dreams/comments/1aoppox/comment/kq5zke9/?utm_source=share&utm_medium=web3x&utm_name=web3xcss&utm_term=1&utm_content=share_button)
+- [Death precognition](https://www.reddit.com/r/Dreams/comments/1aoppox/comment/lkfv5s3/?utm_source=share&utm_medium=web3x&utm_name=web3xcss&utm_term=1&utm_content=share_button)
